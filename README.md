@@ -1,56 +1,53 @@
 # 🕯️ The Candle That Lit the Ocean
 
-A poetic, visual storytelling experience — exploring how a single light can awaken a forgotten world.
+A poetic reflection on identity — both personal and national — through the quiet journey of a light that was never meant to fade.  
+Inspired by stories of forgotten heritage, independence, and self-discovery in the Malaysian spirit.
+
 
 ---
 
 ## 📖 Summary
 
-In a world swallowed by silence and shadow, a single paper boat drifts aimlessly across an endless black ocean. At its center stands a tiny candle — fragile yet persistent — flickering alone in the vast emptiness. It carries no message, no grand purpose, only a quiet determination to exist. This flame, seemingly insignificant, becomes the sole bearer of light in a place that has long forgotten its warmth.
+In a forgotten corner of the sea, there stood a lighthouse — still burning, long after the tides had left. It was never permitted to stop. Like the quiet perseverance of a people rebuilding themselves after colonisation, the flame burned not out of purpose, but memory.
 
-Then, something subtle happens. A drop of wax falls — a simple, unremarkable act — and touches the water below. That touch awakens the sea. From the moment the wax meets the surface, the stillness begins to stir. Faint glows ripple outward. It's as though the ocean remembers something — a dream, a presence — that it had buried deep within its forgotten depths.
+No longer content to merely guide others, the light began to wonder: *Was I born from duty, or a dream?*  
+And so, the flame left its tower. Not in rebellion, but in becoming.
 
-What follows is a transformation not of fire, but of memory. The sea, once black and lifeless, begins to shimmer with the glow of countless golden shapes rising from below. These are not random lights. They are memories, stories, dreams — fragments of a forgotten past. The ocean becomes a canvas of remembrance, where long-lost hopes float just beneath the surface, restored by the quiet offering of the candle.
+It's light, once seen as a signal, transformed into something more personal — a whisper across the ocean, a name remembered not in history books, but in hearts.  
+This is not just about being seen. It’s about *knowing who you are* when no one else is looking.
 
-Yet, through all this change, the candle itself remains unchanged. It does not grow stronger, nor does it seek attention. It simply continues to burn — enough to be seen, enough to keep going. The light is not loud. It is not bright. But it is *present*. In the middle of a newly awakened world, the candle stands as a symbol of quiet resilience.
+**“The Candle That Lit the Ocean”** is a poetic symbol of post-colonial identity, cultural rebirth, and personal meaning. Just as Malaysia found its voice after years of silence, so too does every quiet light have the right to ask: *Why do I burn?*
 
-**"The Candle That Lit the Ocean"** is not a story about power, revolution, or grand acts. It is a meditation on the smallest gestures — the quiet ones — and their ability to ignite something far greater than themselves. It reminds us that hope does not always shout; sometimes, it simply floats, burns, and waits to be seen.
-
----
 
 ## 🎬 Scene Breakdown
 
 ### 🔹 Scene 1  
 **🎞️ Story**  
-In a vast, silent ocean of darkness, a single paper boat drifts. On it stands a tiny candle — quietly burning, completely alone, holding on in a world that has forgotten light.
-
+There was once a lighthouse, still burning long after the tide of time receded.
 ---
 
 ### 🔹 Scene 2  
-**🎞️ Story**  
-A drop of wax falls from the candle. It touches the water, and for the first time… something begins to glow. The still black ocean reacts to the warmth.
+**🎞️ Story**  It burned, not for direction,— but because no one ever told it to stop.
 
 ---
 
 ### 🔹 Scene 3  
 **🎞️ Story**  
-From that one drop, the water begins to change. Glowing shapes rise from the deep, forgotten objects and dreams once lost to time. The sea remembers.
-
+In the hollow dark, the flame asked: ‘Am I duty, or am I dream?’
 ---
 
 ### 🔹 Scene 4  
 **🎞️ Story**  
-Now, the entire ocean glows softly. Millions of golden dreams float peacefully beneath the surface. The once-dark sea is alive with remembered light. The candle still floats at the center, calm and unchanged.
+And so it left the tower — not to escape, but to become.
 
 ---
 
-### 🔹 Scene 5  
+### 🔹 Scene 5      
 **🎞️ Story**  
-The candle still burns. Not brighter. Not louder. Just enough. It sits in the middle of an ocean of hope, almighty, powerful, eternal.
-
+Once a light. Now, a name whispered into the wind.
 ---
 
 ## 🌟 Moral  
-**Even the smallest light can awaken a world of forgotten dreams.**
+**Not every light was meant to guide others. Some were born to discover themselves.”**
 
 ---
