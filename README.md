@@ -52,8 +52,10 @@ Once a light. Now, a name whispered into the wind.
 
 ---
 
-Youtube link: https://youtube.com/shorts/5r9HhsZwd6s?si=QKUk850DjEZkcm-t  👍👍
-**To check out our scenes/images go to scene.zip where all the images are placed**
+**Youtube link**: https://youtube.com/shorts/5r9HhsZwd6s?si=QKUk850DjEZkcm-t(Go check it out!!) 👍👍
+**To check out our scenes/images, go to scene.zip where all the images are placed**
+**For our script, it is under the PDF called Script_Scenes.pdf**
+
 
 
 
