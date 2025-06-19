@@ -51,3 +51,9 @@ Once a light. Now, a name whispered into the wind.
 **Not every light was meant to guide others. Some were born to discover themselves.”**
 
 ---
+
+Youtube link: https://youtube.com/shorts/5r9HhsZwd6s?si=QKUk850DjEZkcm-t  👍👍
+**To check out our scenes/images go to scene.zip where all the images are placed**
+
+
+
